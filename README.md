@@ -1,0 +1,5 @@
+- @MinchoScrims
+- Interested in game, server and other projects.
+- Don't know programming languages, but will learn, if I find a project.
+- Looking for a project to work on.
+- Reachable on ! MiShAkA#2766
